@@ -5,6 +5,7 @@
 ### Who is me?👀
 - CSE Department ASSN.🤡
 - A high school student that wanna be a software engineer💩
+- Taiwan National Skills Competitor 
 - Crypto Trader👽
 
 ### How to connect me?🙂
